@@ -1,0 +1,3 @@
+# -RECUPERACION-DE-INFORMACI-N-ICCD753-GR1CC_2025-2
+01 Búsqueda Básica
+# Darlin Anacicha GR1CC
